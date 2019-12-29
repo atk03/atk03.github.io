@@ -4,7 +4,7 @@
 
 ### Film
 
-#### Un Gelido Inverno - Debra Granik (2010=)
+#### Un Gelido Inverno - Debra Granik (2010)
 <img src="images/gelido.jpg?raw=true"/>
 
 ---
